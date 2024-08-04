@@ -1,10 +1,10 @@
 Hi, I’m @glam0101
 
-I'm learning how to create online environments and pretty digital spaces (sort of like architecture !)
-I've started with the basics, html, css ect. ect.
+I'm learning how to create online environments digital spaces (digital architecture) 
+I upload all of my projects here to archive and share them.
 
 I'm interested in cyber-theory, design, creating cool things for people to explore basically. I'm inspired right 
-now by brutalism, early 2000s webdesign, and writers like Haraway and Gibson.
+now by early 2000s webdesign.
 
 
   💞️ contact me: glamwebdesign22@gmail.com
