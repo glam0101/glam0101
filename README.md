@@ -1,6 +1,7 @@
 Hi, I’m @glam0101
 
-I'm learning how to create online environments digital spaces (digital architecture) 
+I'm learning how to create online environments and digital spaces (digital architecture) 
+
 I upload all of my projects here to archive and share them.
 
 I'm interested in cyber-theory, design, creating cool things for people to explore basically. I'm inspired right 
